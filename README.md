@@ -8,8 +8,8 @@
   <img src="https://files.catbox.moe/dzlij7.png">
 </p>
 <p align="center">    
-<a href="https://guns.lol/kromer">info</a>
-<a href="https://virusangel.straw.page">strawpage</a>
+<a href="https://guns.lol/shubble">info</a>
+<a href="https://grierclock.straw.page">strawpage</a>
 <a href="https://kuroaka.atabook.org/">atabook</a>
 </p>
 <p align="center">
