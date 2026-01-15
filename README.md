@@ -10,7 +10,7 @@
 <p align="center">    
 <a href="https:// https://guns.lol/shubble">୨ info</a>
 <a href="https://grierclock.straw.page">strawpage</a>
-<a href="https:// https://clairvogel.carrd.co">carrd</a>
+<a href="https://clairvogel.carrd.co">carrd</a>
 <a href="https://kuroaka.atabook.org/">atabook ୧</a>
 </p>
 <p align="center">
