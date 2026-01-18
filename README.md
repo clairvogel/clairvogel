@@ -8,7 +8,7 @@
   <img src="https://files.catbox.moe/k27g1d.png">
 </p>
 <p align="center">    
-<a href="https:// https://guns.lol/shubble">୨ info</a>
+<a href="https://guns.lol/shubble">୨ info</a>
 <a href="https://grierclock.straw.page">strawpage</a>
 <a href="https://clairvogel.carrd.co">carrd</a>
 <a href="https://kuroaka.atabook.org/">atabook ୧</a>
